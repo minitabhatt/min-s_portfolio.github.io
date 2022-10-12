@@ -1,1 +1,0 @@
-# min-s_portfolio
